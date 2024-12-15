@@ -1,1 +1,1 @@
-# webi nfo parawisata kelompo ksatu
+# web info parawisata kelompo ksatu
